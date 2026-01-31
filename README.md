@@ -1,16 +1,17 @@
-## Hi there 👋
+![wemmbu](https://cdn.discordapp.com/attachments/1354704026557743157/1467080348834726015/Untitled222_20260131165211.png?ex=697f148c&is=697dc30c&hm=d422a3d7dc7b976c83aaafe44e3cdee1212f47620f7f59389f38b51d44734c32&)
 
-<!--
-**Andrepezzz/Andrepezzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+. ୨୧ ──────── ୨୧ ──────── ୨୧ ──────── ୨୧ ──────── ୨୧ ──────── ୨୧ .
 
-Here are some ideas to get you started:
+ദ്ദി◝ ⩊ ◜.ᐟ ㅤㅤㅤㅤㅤㅤㅤㅤㅤAndre / AndreW2002 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꩜ .ᐟ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤInt !! , ask4artrequest or commission! 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷  ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦
+
+![ooo](https://cdn.discordapp.com/attachments/1354704026557743157/1467080349333852222/Untitled222_20260131165307.png?ex=697f148c&is=697dc30c&hm=522ec0e8db2ab452f801f1779f176a0500f872e1ecd287e77790cc0b5e761b0f&)
+
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDiscord : Andrew2.002 ! ⸝⸝
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤദ്ദി◝ ⩊ ◜.ᐟ ♡ˎˊ˗
