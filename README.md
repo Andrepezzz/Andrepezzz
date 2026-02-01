@@ -1,17 +1,23 @@
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![wemmbu](https://cdn.discordapp.com/attachments/1354704026557743157/1467080348834726015/Untitled222_20260131165211.png?ex=697f148c&is=697dc30c&hm=d422a3d7dc7b976c83aaafe44e3cdee1212f47620f7f59389f38b51d44734c32&)
+![image](https://cdn.discordapp.com/attachments/1354704026557743157/1467350437748281344/Untitled225_20260201104625.png?ex=69801016&is=697ebe96&hm=216d5722d6f8bb4f22ebc47f8a9c514170b2d39d945949e1d7887e15d295bca9)
+# ➤ This person likes purple characters very much👀
+![image](https://cdn.discordapp.com/attachments/1354704026557743157/1467359405908693085/Untitled226_20260201112114.png?ex=69801870&is=697ec6f0&hm=ce31ceb533617dbe11f9d657d0083508ae7270a2f1ca817df1cbbaa6d500e7c2&)
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![divider](https://64.media.tumblr.com/b6235803b3316435438d8715f23dc1eb/99b5756df3518eec-aa/s1280x1920/e065ba26f9715a06d882cc422018da5d9262e67a.gifv)
+# ➤ ₍^. .^₎⟆ Small Info 𓏵𓏵
+ **i take art requests or open commission!** 
+ i open commissions for robux gng, im broke/j i make awesome arts trust,,, 
+HUge fan of wemmbu, loppezz, planetlord, and spepticle!!!! (totally not)
+i am very ambivert guy, and i like music,.,.,., i also animate characters..!! i am **transgender** (FTM) or probably demi girl..
+also i am chronically Online, U can int freely, Except problematic people :P, im sometimes gulliable hah.. 
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝜗ৎ Andre / AndreW2002 ![u](https://64.media.tumblr.com/tumblr_lkl6oadRgA1qfamg6.gif)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![image](https://cdn.discordapp.com/attachments/1354704026557743157/1467355883175678037/Untitled225_20260201110803.png?ex=69801528&is=697ec3a8&hm=123759e060e05a415bb5883e18ea6e83d0739a56cb8ded8980f19319c7185369)
+# SPEPTICLE MENTIONED (๑ᵔ⤙ᵔ๑)
+![imgae](https://cdn.discordapp.com/attachments/1354704026557743157/1467359404968906923/Untitled226_20260201112202.png?ex=69801870&is=697ec6f0&hm=2bc3d7b995ba1b1d687f41c6044106bc242dbe836de9fec9dd52e0409c13500a&)
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤInt !! , ask4artrequest or commission ![awe](https://64.media.tumblr.com/558ca9b25c17083155246c8ce8b6a667/tumblr_inline_mkc8lfzRJh1rul1ji.gif) !!
+# ➤ Discord .𖥔 ݁ ˖
+**D: @Andrew2.002** ask for art request if needed or commission feel free to dm! >⩊<
+i spent my time on loppezz palace server because thats my home, so if you see me there, HIHIHIHIHIHIHIHI!!! ill be glad to meet you trust me i dont bite ꉂ(˵˃ ᗜ ˂˵)
+i often sent my arts through loppezz palace server! im there to people that wants to request art or commission to me, (i js wanna improve my artwork so hah)
+also people who dm me js for inappropriate stuff please fuck off i dont wanna cause some serious shit on my dms.... (DNI to those people)
+anyways im done here ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Stamps](https://y2k.neocities.org/stamps/tumblr_pdu1u6f4Fy1wpplaao4_100.png) ![stamps](https://y2k.neocities.org/stamps/tumblr_pdu1u6f4Fy1wpplaao3_100.gif)
-
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![ooo](https://cdn.discordapp.com/attachments/1354704026557743157/1467080349333852222/Untitled222_20260131165307.png?ex=697f148c&is=697dc30c&hm=522ec0e8db2ab452f801f1779f176a0500f872e1ecd287e77790cc0b5e761b0f&)
-
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![divider](https://64.media.tumblr.com/b4d5d07ac165f820ad6c15ff4e279a73/99b5756df3518eec-2d/s1280x1920/be1e5d4f38a07a131be3f86e3205f0e86fed1dd8.gifv)
-
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![sticker](http://i122.photobucket.com/albums/o260/mhilka/minigifs/other60_b.gif) Discord : Andrew2.002 ! ⸝⸝
-
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![stamps](https://y2k.neocities.org/stamps/roses.png) ![stamps](https://y2k.neocities.org/stamps2/red_rose___stamp_2_by_kas7ia-d900som.png)
+![image](https://cdn.discordapp.com/attachments/1354704026557743157/1467354215725797507/Untitled225_20260201110056.png?ex=6980139b&is=697ec21b&hm=d9375e1a49c8830459d96e39f7e8931edd44d4bbd46d79747854cbd7fd92a173&)
