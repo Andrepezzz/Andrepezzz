@@ -5,9 +5,9 @@
 # ➤ ₍^. .^₎⟆ Small Info 𓏵𓏵
  **i take art requests or open commission!** 
  i open commissions for robux gng, im broke/j i make awesome arts trust,,, 
-HUge fan of wemmbu, loppezz, planetlord, and spepticle!!!! (totally not)
+HUge fan of wemmbu, loppezz, planetlord, spepticle, A1p1 and ETCETC !!!! (totally not)
 i am very ambivert guy, and i like music,.,.,., i also animate characters..!! i am **transgender** (FTM) or probably demi girl..
-also i am chronically Online, U can int freely, Except problematic people :P, im sometimes gulliable hah.. 
+also i am chronically Online, U can int freely, Except problematic people :P, im sometimes gulliable hah.. also im a AndreW2002 Fictkin!
 
 ![image](https://cdn.discordapp.com/attachments/1354704026557743157/1467355883175678037/Untitled225_20260201110803.png?ex=69801528&is=697ec3a8&hm=123759e060e05a415bb5883e18ea6e83d0739a56cb8ded8980f19319c7185369)
 # SPEPTICLE MENTIONED (๑ᵔ⤙ᵔ๑)
