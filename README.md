@@ -14,7 +14,7 @@ also i am chronically Online, U can int freely, Except problematic people :P, im
 ![imgae](https://github.com/Andrepezzz/Andrepezz/blob/34db2c2e10c8d0ee548e5657b85b4d489db40056/spep.png)
 
 # ➤ Discord .𖥔 ݁ ˖
-**D: @Andrew2.002** ask for art request if needed or commission feel free to dm! >⩊<
+**D: @Andrepezz** ask for art request if needed or commission feel free to dm! >⩊<
 i spent my time on loppezz palace server because thats my home, so if you see me there, HIHIHIHIHIHIHIHI!!! ill be glad to meet you trust me i dont bite ꉂ(˵˃ ᗜ ˂˵)
 i often sent my arts through loppezz palace server! im there to people that wants to request art or commission to me, (i js wanna improve my artwork so hah)
 also people who dm me js for inappropriate stuff please fuck off i dont wanna cause some serious shit on my dms.... (DNI to those people)
